@@ -1,4 +1,4 @@
-# 
+# Adobe InDesign for macOS premium Brushes: UI themes & collaboration is the best Adobe InDesign for macOS brush, featuring UI themes and collaboration. Safe, efficient, and
 
 
 
